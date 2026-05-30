@@ -7,7 +7,7 @@ Enjoy!
 
 Sharing is caring
 https://bit.ly/eddingfield
-<img width="490" height="490" alt="qrcode_github com" src="https://github.com/user-attachments/assets/ae50ed9c-2f90-46ac-9476-313c48348123" />
+<img width="190" height="190" alt="qrcode_github com" src="https://github.com/user-attachments/assets/ae50ed9c-2f90-46ac-9476-313c48348123" />
 
 
 a collection of all the answer keys Mr. Eddingfield (Ryan Eddingfield) from Torrey Pines High School (TPHS) has posted during the 2025-2026 school year.
