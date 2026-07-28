@@ -20,4 +20,6 @@ He started posting fewer answer keys after the first few units :(
 
 Mr. and Mrs. Page had baby #1.
 
+funny game i made with ai: [Link](https://eddingfield-answers-tphs-2026.github.io/)
+
 <img width="1280" height="640" alt="eddingfield camera raw (2)" src="https://github.com/user-attachments/assets/067e6f72-c685-4997-9654-3eeb4db918d2" />
